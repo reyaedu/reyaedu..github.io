@@ -1,1 +1,1 @@
-# reyaedu..github.io
+# reyaedu.github.io
